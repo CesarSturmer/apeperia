@@ -5,7 +5,7 @@ dispositivos.
 
 
 
-![alurinha](https://imgur.com/undefined.png)
+![alurinha](https://imgur.com/tsyX0Xw.png)
 
 
 
